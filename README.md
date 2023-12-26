@@ -1,3 +1,3 @@
-# idea_jamboree
+# cool_backpack
 
-아이디어 난장대회 출품작 
+시원한 배낭 아이디어 제품  
